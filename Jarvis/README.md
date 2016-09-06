@@ -35,3 +35,9 @@ PDF
 PDF
 [archive.org](https://archive.org/details/recordsofhunting00samm)
 
+
+### The History of Freemasonry in Canada, Volume 1.
+[PDF](https://drive.google.com/file/d/0Bxxm9-fYAiDab1gtMktGTFA0YXc/view?usp=sharing)
+[archive.org](https://archive.org/details/history_of_freemasonary_in_canada_vol1)
+
+Page 160, William Jarvis biographical info
